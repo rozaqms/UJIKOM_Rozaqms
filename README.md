@@ -1,0 +1,2 @@
+# UJIKOM_Rozaqms
+Galery
